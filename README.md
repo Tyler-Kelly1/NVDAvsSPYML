@@ -3,7 +3,7 @@
 
 
 
-If you were on finicae bro social media in 2024 there is a good chance to saw the meme or similar memes to the one below. 
+If you were on finance bro social media in 2024 there is a good chance to saw the meme or similar memes to the one below. 
 
 ![Screenshot 2025-03-02 112123](https://github.com/user-attachments/assets/f1f9a092-c365-4d97-b41a-3fc406ae0c21)
 
